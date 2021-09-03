@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @bilhaqf
-- 👀 I’m interested in financial and technology
+- 👀 I’m interested in financial technology and capital market
 - 🌱 I’m currently learning product management
 - 💞️ I’m looking to collaborate on product development
 - 📫 Reach me on https://www.linkedin.com/in/bilhaqfajrinda/
